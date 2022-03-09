@@ -1,18 +1,7 @@
-; HI THERE! MY NAMES CONNOR :]                           
-                    🐈‍⬛🎉🎊       
-__________________
-MY AMAZING PRNS ARE ⚞HE / HIM⚟ THEY/THEM IS OK. PLS DONT OVERUSE IT.  ------- 
-___________
-QUICK RUNAROUND ABOUT ME! 🎉🎉 
-MY FAVORITE SUBJECT IS HISTORY. NOT MANY PEOPLE KNOW THAT!💣 | 
-I HAVE A MAJOR OBSESSION DECORATING, MAINLY IRL THO AJJAA🗯 |
-MY HUMOR IS MAINLY DARK HUMOR! PLS SAY SOMETHING IF UR NOT OK W IT!🎸 | MY FAVORITE COLOR IS GREEN OR RED. :]
-
-__________________
-
-IM RLLY COOL! (AND NICE). 
+Hi! The names Connor :) My pronouns are He/Him. Nothing more!
 ____________________
 
-WHERE U CAN CONTACT ME! 🌈  Discord : Blitz#6320 // ILL ONLY BE SHARING MY DC.
+Some things you should know about me.
+_____________
 
-
+I commonly switch subjects up quickly without realizing, so sorry if I do that with you.
